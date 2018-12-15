@@ -8,3 +8,5 @@ The Team tied for First out of eighteen teams at the event.
 
 NOOBS consists of myself, Sowmith Mandadi, Rahulrajan Karthikeyan, and Paige Mitchell.
 
+The video pitch can be accessed here: https://drive.google.com/file/d/1gr49NSnKOHZQ4ueTifofL1baJPWdYEP6/view?usp=sharing
+
